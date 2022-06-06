@@ -1,3 +1,7 @@
 Hi Chenna,
-Please dnt waste your time to learn devops as we are resigned in our current company 
+
+Family strture 
+
+Puli Gangi Reddy
+Puli Ramulamma
 
